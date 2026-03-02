@@ -4,7 +4,7 @@ A kutya es a medve találkozik majd a medve egy régóta akart kérdést tesz fe
 (Képernyőkép 2026-03-02 183737.png)
 
 ![maci 2. fele]
-()
+(Képernyőkép 2026-03-02 183750.png)
 
 ![kutya]
 ()
